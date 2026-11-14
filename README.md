@@ -1,1 +1,0 @@
-# Chereshnev_Denis_IKBO-71-25_Praktika2
